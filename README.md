@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ozanakturk
 - 👀 I’m interested in power electronics
 - 🌱 I’m currently busy with school work
-- 💞️ I’m looking to collaborate on new interesting projects
+- 💞️ Later, I’ll be looking to collaborate on new interesting projects
 - 📫 You can reach me via ozan99akturk@gmail.com
 
 <!---
